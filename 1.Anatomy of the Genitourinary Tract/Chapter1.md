@@ -1,4 +1,4 @@
-# Anatomy_of_the_Genitourinary_Tract
+# Anatomy of the Genitourinary Tract
 
 # 生殖泌尿管道的解剖
 
